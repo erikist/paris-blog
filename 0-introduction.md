@@ -59,9 +59,7 @@ What a time to be alive, but alas, I digress.
 
 Other folks might make more of their first day, on their first time, in a strange new foreign land. I slept. We found our 
 apartment around noon and I tucked in until 5pm. Caitlin, being the more adventurous of the two of us, went out and found 
-a grocery store and explored Parisian streets while I explored the duvet and the pillows. 
-
-![our cozy little Parisian street that we would call home](./pictures)
+a grocery store and explored Parisian streets while I explored the duvet and the pillows.
 
 I woke up after a several hour nap and was told our first stop on our haphazard tour of the Paris Michelin guide was a
 restaurant called [the Alliance](https://www.restaurant-alliance.fr/en/).  
